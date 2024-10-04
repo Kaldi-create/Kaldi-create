@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Developing
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on nothing right now.
-- 📫 How to reach me einar.elis.snorra@gmail.com
+- 📫 How to reach me einarvidskipti05@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have broken my left foot twice in the same place.
 
